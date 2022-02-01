@@ -1,0 +1,2 @@
+# GondolatokAFavipiravirHatasossagarolEsATudomanyosVelemenynyilvanitasSzabadsagarol
+Gondolatok a favipiravir hatásosságáról, és a tudományos véleménynyilvánítás szabadságáról
