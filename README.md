@@ -49,3 +49,9 @@ Rendkívül szomorú, hogy nem ismerik fel, hogy ha valaki nem engedi a valódi 
 Az OGYÉI természetesen pontosan tudja, hogy a feljelentésének semmi értelme (merem legalábbis remélni, hogy _valójában_ nem gondolják, hogy a tudományos konszenzus ismertetése “rémhírterjesztés”!), és el fogják utasítani, de nekik ez mindegy, mert a célt, a bilincs meglengetését, azt, hogy büntetőeljárás súlyával rettentsék el a kutatókat a véleményük elmondásától, elérik. Látatlanban is bizonyos vagyok abban, hogy az OGYÉI-nél beosztottként dolgozó több száz, tisztességes, szakmailag rendkívül felkészült, a közösségért dolgozó szakember számára is elfogadhatatlan mindez.
 
 Azt gondolom, hogy a magyar egyetemeknek, kutatóintézeteknek, a tudományos akadémiának nagyon egyértelműen és nagyon határozottan ki kellene állniuk ezen a ponton a tudományos véleménynyilvánítás szabadsága mellett. Bármennyire is partikuláris apróságnak tűnik a favipiravir hatásosságának kérdésköre, véleményem szerint a orvostudomány elleni olyan támadást, ahol a társadalmat legjobb tudásuk szerint szolgáló tudósok sajtónyilatkozata miatt egy állami szerv letöltendő börtönbüntetéssel fenyegetett bűntettért tesz feljelentést, nem szabad szó nélkül hagyni, különben senki sem tudhatja, hogy mi lesz a következő lépés. Csak azt, hogy annak mi lesz az áldozata: a magyar emberek egészsége.
+
+---
+
+(Az írás a 2022. február 1-én érvényes állapotot tükrözi.)
+
+A [szerző](http://www.medstat.hu/) klinikai biostatisztikus, orvosbiológiai mérnök. A fent leírtak teljes egészében a magánvéleményét képviselik.
