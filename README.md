@@ -55,3 +55,5 @@ Azt gondolom, hogy a magyar egyetemeknek, kutatóintézeteknek, a tudományos ak
 (Az írás a 2022. február 1-én érvényes állapotot tükrözi.)
 
 A [szerző](http://www.medstat.hu/) klinikai biostatisztikus, orvosbiológiai mérnök. A fent leírtak teljes egészében a magánvéleményét képviselik.
+
+Frissítés (2022. február 15.): Nagy örömömre február 15-én a Magyar Tudományos Akadémia egy [állásfoglalást adott ki](https://mta.hu/mta_hirei/tajekoztatas-az-akademia-elnoke-altal-a-favipiravir-koronavirus-elleni-alkalmazasanak-tudomanyos-alapjaival-es-a-tudomanyos-vita-fontossagaval-kapcsolatban-kezdemenyezett-megbeszelesrol-111965) a témában, mellyel teljes mértékben egyet tudok érteni (magam is aláírója voltam).
